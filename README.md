@@ -1,4 +1,4 @@
-We really like Overwatch. We really like Creative Commons. It was only a matter of time.
+tl;dr: We really like Overwatch. We really like Creative Commons. It was only a matter of time.
 
 Like it? Slap it on a tee-shirt, put it on a sticker at <a href="https://www.redbubble.com/people/thirtythreedown/works/28319205-happy-egg?asc=u">Red Bubble</a>.
 
